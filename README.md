@@ -7,4 +7,4 @@
 <!---
 Juniardi1977/Juniardi1977 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
----> hi any budy cant help me  , for kyc step 1 , whwn im start to get kyc the aplication auto exit 
+---> hi bro sist ,  any budy here  cant help me  , for kyc step 1 , whwn im start to get kyc the aplication at my phone auto exit 
